@@ -1,1 +1,1 @@
-# tusk
+Spamming is the use of electronic messaging systems like e-mails and other digital delivery systems and broadcast media to send unwanted bulk messages indiscriminately.
